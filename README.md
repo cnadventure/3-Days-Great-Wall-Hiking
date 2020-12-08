@@ -1,6 +1,7 @@
 # 3-Days-Great-Wall-Hiking
 
-## Website: www.cnadventure.com  Email: assistant@cnadventure.com
+> * Website: www.cnadventure.com
+> * Email: [assistant@cnadventure.com](mailto: assistant@cnadventure.com)
 
 ## Trip Overview
 The Great Wall is the universal symbol of China. Starting from the eastern Shanhaiguan Pass, and ending at the Jiayuguan Pass in the west, the Great Wall fully merits its designation as a wonder of the world. This 3-day Great Wall trek route is carefully designed for the Great Wall enthusiast who would like to experience the best parts of the eastern Wall, but has only limited time. This excursion covers different areas of the “Wild Wall” fairly close to Beijing. As a special opportunity offered to Great Wall hiking enthusiasts, this excursion will transverse the best hiking sections of the Gubeikou, Jianshanling, Simatai, Jiankou, and Mutianyu Great Wall.
